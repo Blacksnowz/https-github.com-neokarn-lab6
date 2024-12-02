@@ -1,1 +1,1 @@
-# https-github.com-neokarn-lab6
+Tanapat hedegaard 670610701
